@@ -1,5 +1,8 @@
 <p align="center">
   appreciation post for my friends<3
+<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/c020ae60-1500-4bff-854f-c84a28ab0259" />
+<img width="1080" height="1178" alt="Image" src="https://github.com/user-attachments/assets/6fc439f7-f7ba-4397-b36f-078c9aab0ae5" />
+arts by rai,, heh...ilove you rai🤤🤤🤤please keep feeding me your phainon arts heh,,I LOVE YOUU RAIII OK
 <p align="center">
 <img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/bc950d81-cc21-4cfe-8d6f-cf11269d40a0" />
 art by dray ILY DRAYY KWWP FEEDING ME YOUR ARTS PLEASE
@@ -8,5 +11,3 @@ art by dray ILY DRAYY KWWP FEEDING ME YOUR ARTS PLEASE
 arts by car ily car
 <img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/cc52423b-80f6-4bac-bb75-dc4f621371cb" />
 art by meyy I LOVE YOU SO MUCJH THANKS FOR THE DELICIOUS ARTS YUMM
-<img width="1080" height="1178" alt="Image" src="https://github.com/user-attachments/assets/6fc439f7-f7ba-4397-b36f-078c9aab0ae5" />
-art by rai,, heh...ilove you rai🤤🤤🤤please keep feeding me your phainon arts heh,,
